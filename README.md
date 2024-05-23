@@ -1,10 +1,9 @@
-<h1 align="center">👋 Hello, I'm Maxim Arkhangelsky!</h1>
+<h1 align="center">👋 Hello, I'm Maxim Onfroy!</h1>
 <h3 align="center">IGN: increasedd</h3>
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=increaseddd&label=Profile%20views:&color=ff1100&style=plastic" alt="increaseddd" /> </p>
 
-- 🔭 I am a Moderator on the SkillMine project: **vk.com/mcpe_skillmine**
-- 💭 My phrases: **i love niggas, i hate Drake, i miss XXXTENTACION, come on, Mr. West**
+- 💭 My phrases: **i love niggas, i hate Drake, i miss XXXTENTACION, i miss the old Kanye**
 - 💫 My age: **16**
 - 🌟 My height: **174**
 
