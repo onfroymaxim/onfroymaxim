@@ -3,7 +3,7 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=increaseddd&label=Profile%20views:&color=ff1100&style=plastic" alt="increaseddd" /> </p>
 
-- 💭 My phrases: **i love niggas, i hate Drake, i miss XXXTENTACION, i miss the old Kanye**
+- 💭 My phrases: **i love niggas, i hate Drake, i miss XXXTENTACION, i miss the old Kanye, #FUCKDRAKE**
 - 💫 My age: **16**
 - 🌟 My height: **174**
 
